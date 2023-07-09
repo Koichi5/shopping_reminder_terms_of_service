@@ -1,0 +1,1 @@
+# shopping_reminder_terms_of_service
